@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @beeecer
-- I am currently working as a Engagement Technology Specialist at The College of St. Scholastica.
